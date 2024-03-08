@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @GibMirChaoscob
+- 👀 I’m interested in you
+- 🌱 I’m currently learning how to trap children
+- 💞️ I’m looking to collaborate on Alcohol
+- 📫 How to reach me Koks
+- 😄 Pronouns: Deine/Mudda
+- ⚡ Fun fact: i hate children
